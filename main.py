@@ -1,0 +1,3 @@
+Dobrý  
+čau
+ahoj
